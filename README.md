@@ -1,0 +1,1 @@
+# tarixiy_obidalar_buxoro
